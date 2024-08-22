@@ -8,4 +8,4 @@ Click the link below to access the Acko Insurance App:
 
 Below is a screenshot of the app:
 
-![App Screenshot](https://i2.paste.pics/3df25e00de4088bfd7c46ca67923e12f.png?rand=iHAd8lZFY7)
+![App Screenshot](https://i2.paste.pics/a098e4ebd98c6ae432fefb2e73c3fbf5.png?rand=Fi14WTCLSf)
